@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @UbayDH
+- 👀 I’m interested in new things and tech
+- 🌱 I’m currently learning cyber security at Bina Nusantara University
+- You can reach me on Linkeidn or Facebook (Bayu Dwi Hariadi)
